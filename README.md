@@ -1,0 +1,1 @@
+# novaruta-territorio-estrategico
